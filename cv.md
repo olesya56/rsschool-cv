@@ -8,7 +8,7 @@ Future frontend developer
 
 * Location: Russia, Stupino 
 
-## About me 2
+## About me 
 I am 17 years old, at the moment I work as a barista in a coffee shop, but I also had experience working as a waitress in a bar. Having worked in a bar for about a year, I have acquired quite new qualities, such as: sociability, responsiveness, and patience. 
 
 
